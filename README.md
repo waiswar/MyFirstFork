@@ -118,4 +118,9 @@ EANBiT fellow
 
 i am a Liverpool fan
 
+### Razack Wasswa
+* Makerere University
+* Bioinformatician Already!
+* well!
+
 
